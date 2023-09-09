@@ -8,3 +8,9 @@ dataset updated by RANZEET RAUT at Kaggle, this is a great vision about Cervical
 
 ![image](https://github.com/cecicondor/datasetManipulatedBIstudy/assets/101957373/45a5fb72-4e63-4f11-9fab-ff3bd989936e)
 Nothing but If commands 
+
+Finished :)
+
+well, i tried not so good today
+
+![image](https://github.com/cecicondor/datasetManipulatedBIstudy/assets/101957373/9198e07d-700d-485c-86cf-469093491e62)
