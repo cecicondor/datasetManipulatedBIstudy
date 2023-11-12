@@ -14,3 +14,8 @@ Finished :)
 well, i tried not so good today
 
 ![image](https://github.com/cecicondor/datasetManipulatedBIstudy/assets/101957373/9198e07d-700d-485c-86cf-469093491e62)
+
+
+update -> 
+
+I finally finished this update at PBI, currently nothing to say im freak tired ![image](https://github.com/cecicondor/datasetManipulatedBIstudy/assets/101957373/2f21157c-ed82-478d-93bc-32566fa59c63)
